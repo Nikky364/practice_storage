@@ -1,2 +1,2 @@
 #test_storage
-Nikhil is a die hard fan of shiva
+way of life is depends on you
